@@ -1,2 +1,2 @@
 # ShareMarketing-And-Predictions--Poornasai
-Share Marketing and Predictions  Share Marketing (Stock Market): Share marketing, also known as the stock market, is a platform where investors buy and sell ownership shares of companies. Each share represents a small part of a company’s ownership.  When a company performs well, the value of its shares increases.
+Share Marketing and Predictions  Share Marketing (Stock Market): Share marketing, also known as the stock market, is a platform where investors buy and sell ownership shares of companies. Each share represents a small part of a company’s ownership.  When a company performs well, the value of its shares increases.Website Link https://hipe-play-profit.lovable.app/
